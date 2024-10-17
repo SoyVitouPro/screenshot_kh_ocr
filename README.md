@@ -1,0 +1,1 @@
+# screenshot_kh_ocr
